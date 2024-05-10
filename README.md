@@ -10,11 +10,11 @@ fomenta el aprendizaje de los estudiantes de 5toE, ya que se han visto medio dif
 
 
 
-                                          |
-                                          |
-                                          |
-                                          |
-                                          ⬇
+                        |
+                        |
+                        |
+                        |
+                        ⬇                   
        Seria de gran aporte que nos dones aqui.
              Aceptamos sus donaciones 🥉
 
